@@ -1,5 +1,5 @@
 ##
-Olá, eu sou o Mário_DEV (mariomont30)! 👨🏻‍💻 💡
+Olá, eu sou o Mário_DEV (mariomont30) 👨🏻‍💻 💡
 ##
 
 - 🔭 I’m currently working on ...
